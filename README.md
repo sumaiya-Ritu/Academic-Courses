@@ -1,0 +1,2 @@
+# Academic-Courses
+Online education enables the teacher and the student to set their own learning pace, and there's the added flexibility of setting a schedule that fits everyone's agenda. As a result, using an online educational platform allows for a better balance of work and studies, so there's no need to give anything up.This Website is built in the inspiration for the respective purpose as well. 
